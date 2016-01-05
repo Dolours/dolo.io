@@ -1,3 +1,3 @@
 # dolo.io
 
-This Repository is meant for personal rant of Mr.Dolours Maria George.!!!
+Dolours George has more than 5 years of experience in IT industry. He is specialised in mobile applications development. 
